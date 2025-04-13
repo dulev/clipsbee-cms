@@ -1,5 +1,5 @@
 ---
-title: "# 🗣️ Best Software for Animating Characters with Lip Sync (2025 Guide)"
+title: 🗣️ Best Software for Animating Characters with Lip Sync (2025 Guide)
 date: 2025-04-13T15:01:00.000Z
 thumbnail: /uploads/chatgpt-image-apr-13-2025-09_26_09-pm.png
 ---
